@@ -1,2 +1,2 @@
-# equpo6
+# equipo numero 6
 
